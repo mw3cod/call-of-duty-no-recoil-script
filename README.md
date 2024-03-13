@@ -31,6 +31,9 @@ https://discord.gg/nm2kk22kg6
 
 https://github.com/mw3cod/call-of-duty-no-recoil-script/assets/162490095/62bc1d8f-2eef-4087-8059-81f566b97dd5
 
+https://github.com/mw3cod/call-of-duty-no-recoil-script/assets/162490095/3753d668-9947-4377-ab18-e9c15289679f
+
+https://github.com/mw3cod/call-of-duty-no-recoil-script/assets/162490095/c95a066f-0122-403a-988f-662e2ec6deb1
 
 
 
